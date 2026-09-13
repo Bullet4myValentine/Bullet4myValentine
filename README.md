@@ -5,7 +5,7 @@
 On around 4 am to 7 pm CDT/CST on weekends.
 Weekdays depend when i get done w/ classes !
 
-Feel free to Int Unless my skins says otherwise ! (Not feeling well skins)
+Feel free to Int Unless my skins says otherwise ! (Not feeling well or busy skins)
 
 I rarely follow, but if I do then I like your pony !
 
