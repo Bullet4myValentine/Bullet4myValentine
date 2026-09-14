@@ -1,4 +1,7 @@
-<img width="575" height="73" alt="sparkles" src="https://github.com/user-attachments/assets/8b4ef31f-b965-4899-ae12-3216ae7f18be" />
+<img width="735" height="359" alt="Tiger" src="https://github.com/user-attachments/assets/270259bb-c72e-413f-b1f9-0741e0022d76" />
+
+
+<img width="732" height="44" alt="lace" src="https://github.com/user-attachments/assets/679dccbd-bb3e-4091-bd76-636f44ddf889" />
 
 17 turning 18 this October ! 
 
@@ -12,5 +15,7 @@ I rarely follow, but if I do then I like your pony !
 I am super awkward but Int .. pls otherwise we may never talk
 
 
-<img width="500" height="226" alt="pixels and things" src="https://github.com/user-attachments/assets/f1600b05-ebce-45d7-883b-77fb1f04a511" />
+<img width="732" height="44" alt="lace" src="https://github.com/user-attachments/assets/679dccbd-bb3e-4091-bd76-636f44ddf889" />
+<img width="734" height="325" alt="download (1)" src="https://github.com/user-attachments/assets/ac437572-0345-4610-86fd-e5d02431f8ca" />
+
 
