@@ -12,7 +12,7 @@ Feel free to Int Unless my skins says otherwise ! (Not feeling well or busy skin
 
 I'm either semi-afk or hanging out with friends.. heh
 
-I rarely follow, but if I do then I like your pony !
+I rarely follow, Usually only my friends or ponies i like !
 
 I am super awkward but Int .. pls otherwise we may never talk
 
