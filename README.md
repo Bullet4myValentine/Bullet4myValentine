@@ -7,8 +7,7 @@
 
 
 
-On around 4 am to 8 pm CDT/CST on weekends.
-Weekdays depend but usually 12 pm to 8pm 
+On waiting for friends or hanging out with friends do (Iwec when with friends)
 
 ・❥・Feel free to Int Unless my skins says otherwise ! (Not feeling well or busy skins)
 
