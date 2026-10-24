@@ -7,7 +7,7 @@
 
 
 
-On waiting for friends or hanging out with friends (Iwec when with friends)
+Iwc when w/ friends. I do not int with problematic people. 
 
 ・❥・Feel free to Int Unless my skins says otherwise ! (Not feeling well or busy skins)
 
