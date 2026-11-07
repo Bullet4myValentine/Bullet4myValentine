@@ -7,9 +7,9 @@
 
 
 
-Iwc when w/ friends. I do not int with problematic people. 
+Iwc when w/ friends. They aren't very good with new people
 
-・❥・Feel free to Int Unless my skins says otherwise ! (Not feeling well or busy skins)
+・❥・Feel free to Int (16+) Unless my skins says otherwise ! (Not feeling well or busy skins)
 
 ・❥・I rarely follow, Usually only my friends or ponies i like !
 
