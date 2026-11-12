@@ -1,3 +1,4 @@
+I WILL be redoing this soon so hang tight !!
 <img width="732" height="44" alt="lace" src="https://github.com/user-attachments/assets/679dccbd-bb3e-4091-bd76-636f44ddf889" />
 
 <img width="735" height="359" alt="Tiger" src="https://github.com/user-attachments/assets/270259bb-c72e-413f-b1f9-0741e0022d76" />
