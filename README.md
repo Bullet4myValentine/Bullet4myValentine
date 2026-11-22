@@ -1,3 +1,8 @@
 <p align="center">
- <img width="499" height="281" alt="download (6)" src="https://github.com/user-attachments/assets/dc8c0d63-4d23-440d-92df-5e5cc76b782b" />
+<img width="731" height="113" alt="download (9)" src="https://github.com/user-attachments/assets/fd6c48a5-eb5f-4a84-9ddc-bbabdafe9d82" />
 
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=25&letterSpacing=&duration=4000&pause=100&color=1B608E&center=true&width=435&lines=There+are+many+worlds%2C;but+they+share+the+same+sky-;one+sky%2C+one+destiny." alt="Typing SVG" /></a>
+
+<p align="center">
+<img width="700" height="281" alt="download (6)" src="https://github.com/user-attachments/assets/5eb2ac77-75c1-4e56-80da-01d2c6c2efc7" />
